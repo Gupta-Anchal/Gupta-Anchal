@@ -1,6 +1,6 @@
 ## Hello World 👋
 
-I am not a perfectionist. YES, I do mistakes and learn from them. 
+I am not a perfectionist. YES, I do mistakes and learn from them. Ambitious, benevolent and candid are the ABC of my personality.
 
 ## Get In Touch 
 
