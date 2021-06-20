@@ -9,6 +9,6 @@ Twitter - https://twitter.com/Anchal_Gupta_ <br />
 Email - anchalchery@gmail.com <br />
 Website - https://engineeranchal.wordpress.com/
 
-### I sleep too often. How will I complete my work ? :p
+### Want to support my work ? :)
 
 <a href="https://www.buymeacoffee.com/Anchal" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/default-orange.png" alt="Buy Me A Coffee" height="41" width="174"></a>
